@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @MichalHazan
 - 👀 I love Coding
-- 🌱 I’m currently learning FullStuck Development
+- 🌱 I can do anything
 - 📫 How to reach me: michalhazansnt@gmail.com
